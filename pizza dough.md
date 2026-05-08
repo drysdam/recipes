@@ -9,7 +9,7 @@
   - 20g salt
 
 ## 2-3 people
-  - 225-250 water (lower in summer)
+  - 225-250ml water (lower in summer)
   - 387g all-purpose flour
   - 10g vital wheat gluten
   - 5g honey
